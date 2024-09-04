@@ -1,3 +1,4 @@
 # commclassroomOP
 
-Kunal Kushwaha learing github amazing..
+ - Garv Mathur says that this community is amazing
+ - So does kunal kushwaha
